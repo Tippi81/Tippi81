@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Tippi81
-- 👀 I’m interested in ...comouters, youtube, and learning
+- 👀 I’m interested in ...computers, youtube, and learning
 - 🌱 I’m currently learning ...how to edit youtube videos.
 - 💞️ I’m looking to collaborate on ...amazing projects.
 - 📫 How to reach me ...mstiffanihughes@gmail.com
